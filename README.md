@@ -1,3 +1,3 @@
 
-And that was scarcely odd, because  
+And this was scarcely odd, because  
 They'd eaten every one.
